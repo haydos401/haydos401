@@ -1,0 +1,14 @@
+- 👋 Never
+- 👀 Going
+- 🌱 To
+- 💞️ Give you up
+- 📫 Never
+- ⚗️ Going
+- 🥇 To
+- 🎉 Let You Down
+- 🛺 Never
+- 🚙 Going
+- 🧺 To
+- 🏃 Run around
+- 👼 And
+- 😲 Desert you
